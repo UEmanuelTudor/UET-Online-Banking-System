@@ -19,4 +19,4 @@ Experience a complete and secure online banking solution with our program, elimi
 
 🌟✨💰💳📊🚀😊🏦🌐🔐💎
 
-© UETCompany
+© Copyrights 2023 UET Company
